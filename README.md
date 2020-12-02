@@ -4,4 +4,4 @@
 3. Eduardo Sanov
 4. Hengky Yandratama
 
-[GDrive link](https://drive.google.com/drive/folders/1_GZsgxGUNEDDBpIJB1dm_PlXtLw8_O8P)
+[GDrive link](https://drive.google.com/folderview?id=1Bc1gZ1mE6e1xs53bzqzP_pbQ_BE-5a2D)
